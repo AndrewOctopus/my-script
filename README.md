@@ -1,1 +1,1 @@
-# my-script# JokeswithJackly
+what should i rite dude?
